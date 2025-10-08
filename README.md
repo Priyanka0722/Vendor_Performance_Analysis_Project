@@ -110,7 +110,7 @@ Vendor_Performance_Analysis/
 **Priyanka Thapa**  
 📍 India  
 [GitHub Profile](https://github.com/Priyanka0722) 
-[LinkedIn Profile](https://www.linkedin.com/in/priyanka-thapa-799a862bb)  
+[LinkedIn Profile](https://www.linkedin.com/in/Priyanka-thapa-)  
 
 ---
 
